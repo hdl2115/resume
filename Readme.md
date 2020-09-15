@@ -5,5 +5,5 @@
 
 ## Education
 
-2019  Bachelor of [Science Univeristy of California, Davis](https://www.ucdavis.edu/)
+2019  Bachelor of Science [Univeristy of California, Davis](https://www.ucdavis.edu/)
 
